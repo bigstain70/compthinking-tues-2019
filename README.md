@@ -1,3 +1,3 @@
 # compthinking-tues-2019
 first time
-# brand new!!!!!
+# something is brand new!!!!!
